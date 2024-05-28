@@ -1,6 +1,6 @@
 # qq吃瓜群秒同意2024
 
-<a href="https://8h9e.vip/">-------点/此/进/入/观/看/--------</a>
+<hr/> <a href="https://github.com/fetiyung/dhjui/issues/3">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 
  若是有来生，伴君天下舞！
